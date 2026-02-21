@@ -1,2 +1,1 @@
-# hans-erik-ericsson-cv
-CV , marine, maritime, bureau veritas, marin, lloyds register, bakgrund, background, dania shipmanagement, navy, naval, marinen, sjöingenjör, executive mba in shipping, diving, submersible, undervatten, tryckkammare, pressure chamber, greentech, shipyards, governmental
+30-year Maritime: Bureau Veritas Operations Manager Ships in Service &Eq.Mat.Comp.local Mgr,Dania Ship Management Tech Superint, Svithoid Tankers Tech Supt/Techn Operations Manager, Lloyd’s Register Senior Surveyor(Submersibles/Ships/New Constr); Serv. aboard Royal Sw. Navy vessels parttime as Technical Officer; Chief Engineer (Restricted) civil ships.
