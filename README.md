@@ -1,1 +1,1 @@
-30yearexp BV OpMgr Ships in Service, DaniaShipMgmt TechSupt, Svithoid Tankers TechOpMgr, LR Sen.Surveyor; Serv.RoyalSw.Navy parttime Techn.Officer(thr.prof.equivalency civil Marine Eng/STCW/compl.mil.train foll.by beneficial decision regarding permanent off.res rank&status);C/E(Restr.)civ.
+30yearexp BV OpMgr Ships in Service, DaniaShipMgmt TechSupt, Svithoid Tankers TechOpMgr, LR Sen.Surveyor; Serv.RoyalSw.Navy parttime Techn.Officer(thr.prof.equivalency civil Marine Eng/STCW/suppl.mil.train foll.by beneficial decision regarding permanent off.res rank&status);C/E(Restr.)civ.
